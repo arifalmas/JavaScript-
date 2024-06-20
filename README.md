@@ -1,4 +1,3 @@
-# JavaScript-
-Learning JS ES6
+# JavaScript ES6:
 
 # How It Works:
