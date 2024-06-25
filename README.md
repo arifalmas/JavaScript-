@@ -12,8 +12,3 @@ Lesson Three:
 Lesson Four:
 
 Lesson Five:
-
-Lesson Six:
-
-
-Lesson Seven:
