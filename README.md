@@ -13,7 +13,6 @@ Lesson Four:
 
 Lesson Five:
 
- Lesson Six:
 
 
 
