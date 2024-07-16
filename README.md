@@ -3,7 +3,7 @@
 Lesson One:
 
 
-Less
+Le
 
 
 
