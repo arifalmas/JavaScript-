@@ -3,8 +3,6 @@
 Lesson One:
 
 
-Le
-
 
 
 
